@@ -1,4 +1,4 @@
-#  
+#  Experience creatures of sonaria like never before with creatures of sonaria Script smart, the #1 Script. Includes auto-farm and esp for unbeatable
 
 
 
